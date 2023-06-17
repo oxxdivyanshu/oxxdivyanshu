@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oxxdivyanshu
 - 👀 I’m interested in learnig new skills
-- 🌱 I’m currently learning basic coding
+- 🌱 I’m currently learning advance coding
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me DM me On Insta
 
